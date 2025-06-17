@@ -35,6 +35,6 @@ We care about your privacy. This extension does **NOT** collect, store, or trans
 ## 📬 Contact
 
 If you have questions or concerns, you can contact us at:  
-📧 **your-email@example.com**
+📧 **islamomar0003@gmail.com**
 
 _Last updated: June 2025_
